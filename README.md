@@ -1,0 +1,1 @@
+# GameSwiper-android-apps-policy
